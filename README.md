@@ -18,3 +18,5 @@
 8) Tente ao máximo falar utilizando a língua espanhola. Desta forma, além de melhorar a prática do idioma, você poderá tirar dúvidas com seus colegas.
 
 9) Qualquer outro assunto que não esteja nas regras mas que possa ser considerado ofensivo por algum usuário, cabe aos administradores analisar os fatos e decidir qual atitude tomar dentro da situação.
+
+Obs geral: O usuário será notificado de forma individual e privada pelo administrador do grupo sem envolver os demais participantes em caso de quebra de regras. Após a conversa (e alerta sobre a quebra de regra), se o fato se repetir (em qualquer uma dos problemas acima) com a excessão do item 8, o usuário será expulso do grupo.
