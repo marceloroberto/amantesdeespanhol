@@ -5,7 +5,7 @@
 
 2) Nenhum discurso de ódio ou bullying - Todos devem se sentir seguros. O bullying de qualquer tipo não é permitido, e comentários degradantes sobre raça, religião, cultura, orientação sexual, gênero ou identidade não serão tolerados.
 
-3) Nenhuma promoção ou spam - Proporcione às outras pessoas deste grupo mais do que você obtém dele. Autopromoção, spam, links de afiliados e links irrelevantes não são permitidos.
+3) Nenhuma promoção ou spam - Proporcione às outras pessoas deste grupo mais do que você obtém dele. Autopromoção, spam, links de afiliados, links de quaisquer outro grupo que não faça parte do "Amantes de Espanhol" e links irrelevantes não são permitidos.
 
 4) Respeite a privacidade de todos - A participação no grupo requer confiança mútua. É ótimo ter discussões autênticas e expressivas no grupo, mas elas podem ser sensíveis e privadas. O que é compartilhado no grupo deve permanecer nele.
 
